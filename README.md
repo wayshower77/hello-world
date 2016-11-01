@@ -8,7 +8,7 @@ Thank you for all the open-source experts, developers, and
 techies to make all these unified, cooperative ventures
 possible.
 
-A new world of infinite possibilities lies open before us 
+A new world of infinite possibilities lie open before us 
 for creating a better, peaceful, harmonious society, human
 civilization, and cosmos. Light has begun to dawn on us. 
 The prospect for an ever brighter future governed by good
