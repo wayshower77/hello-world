@@ -17,3 +17,13 @@ and principle is blazing ahead with ever glowing intensity.
 Let's press on being guided by the inner promptings of
 life shaped and fashioned by a heart, which through experience,
 has been captured by truth, devotion, and love!
+
+---------------------------------------------------------
+
+Two years have passed since I started and wrote the above notes.
+I have done nothing since then but continue my study of coding.
+
+I'm now back to continue and finish what I have started.
+
+Let's do whatever it takes, under love and good, to build a
+better world.
